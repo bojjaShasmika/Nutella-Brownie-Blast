@@ -1,0 +1,3 @@
+For those times when your chocolate needs more chocolate, try a Nutella and chocolate brownie-infused milkshake.
+This delicious nutella brownie chocolate shake is to die for. A fan favorite, this tasty drink is made with vanilla ice cream blended with our homemade nutella, and Cold Milk.
+Make a great start to your day with this deliciously creamy Nutella brownie milkshake. Those who are fond of nutella, this refreshing recipe is apt for them. Be it your kitty party or any festive, you can prepare this beverage at any occassion and we're sure your family will surely love it. So, here's a quick and easy peasy recipe for you.
